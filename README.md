@@ -1,0 +1,2 @@
+# szymekolega
+o przyjazcielu
